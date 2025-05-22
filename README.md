@@ -1,1 +1,1 @@
-# SC_302_Documentacion_MN_Fabian-Retana-Mora.git
+# SC_302_Documentacion_MN_Fabian-Retana-Mora
